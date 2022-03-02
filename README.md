@@ -1,0 +1,4 @@
+-<>
+-Hello I go by Chris, Currently a Cyber Security Major in college and Im looking to collaborate, shadow, aprrentice any projects looking to take me on board.
+-You can contact me at my email Christopher.enriquez01@outlook.com & or my personal at Hotjaffacake@hotmail.com
+-<>
